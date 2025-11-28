@@ -424,6 +424,97 @@ we need to developing our society & country ,  we soulde have beening developing
 
 5. ቅዋማዊ ዳግመ ግምት፡ ሕግታት ምስ ሕገ መንግስቲ ዝሰማምዑ ምዃኖም ንምርግጋጽ ዝተዳለወ ኣገባብ እዩ። 
 
+
+
+---
+
+## ናብ ላዕሊ ዋኒን ስራሕ ዝወስድ ስጉምትታት (Steps Towards Entrepreneurship)
+
+*Take the steps one by one towards the top of entrepreneurship: Cultivate your mind, break down barriers, train yourself and launch! The ascent starts now.*
+
+*Franchir les étapes une à une vers le sommet de l'entrepreneuriat : Cultivez votre esprit, brisez les barrières, formez-vous et lancez-vous ! L'ascension commence maintenant.*
+
+
+### 1. ኣእምሮኻ ኣማዕብል (Cultivate Your Mind)
+
+ሓደ ሓደ ግዜ ነቲ ብዙሕ ዘይጉዓዝ መንገዲ ምምራጽ ትብዓትን ምእማንን ዝሓትት እኳ እንተኾነ፡ መብዛሕትኡ ግዜ ግን ኣብኡ ኢና ሓቀኛ ኣንፈትና እንረኽቦ። ኣድላዪ እንተኾይኑ በይንኻ ምጉዓዝ፡ ኩሉ ግዜ ግን ናብቲ ቅኑዕ ኮይኑ ዝስምዓካ ገጽካ ምጉዓዝ።
+
+*Sometimes choosing the less traveled path requires courage and conviction, but it is often there that we find our true direction. Walk alone if necessary, but always walk toward what feels right to you.*
+
+
+### 2. ዕንቅፋታት ኣፍሪስካ (Break Down Barriers)
+
+መሰረታዊ ሓቂ ምዝካር ወሳኒ እዩ፡ ትሑት ርእሰ-ምትእምማን ተፈጥሮኣዊ ኩነታት ኣይኮነን። ርእሰ ተኣማንነት ባህርያዊ ባህርይ እዩ፣ ኣብ ነፍሲ ወከፍና ካብ ልደትና ኣትሒዙ ዘሎ እዩ።
+
+ይኹን እምበር፡ ምስ ግዜ፡ ሕብረተሰብ፡ ስርዓተ ትምህርትን ኣብ ከባቢና ዘለዉን መብዛሕትኡ ግዜ ነዚ ርእሰ-ምትእምማን እዚ ንምሽርሻር ኣበርክቶ ስለ ዝገብሩ፡ ዓቕምና ክንጠራጠርን ዋጋና ኣብ ሕቶ ምልክት ክንኣቱን ይገብሩና።
+
+ነዚ ዑደት ክንሰብሮ ግዜኡ እዩ። ርእሰ ምትእምማን ድሮ ኣብ ውሽጥኻ ኣሎ፤ በቃ ብናይ ዓመታት ኣሉታዊ ኩነታትን ደረት ኣተሓሳስባን ተሓኒቑ።
+
+
+### 3. ነብስኻ ኣሰልጥንን (Train Yourself)
+
+ኣብ ምድህሳስ ልምድታትካ ምጥላቕ፣ ምኽንያቱ እቲ ቁልፊ ጥበብ ኣብ ምርዳእ ንተግባራትካን ስምዒታትካን ምድግጋምካን ዝድርኹ ሓይልታት እዩ። ድሕሪ ነፍሲ ወከፍ ምልክት ምልክት ዘሎ 'ስለምንታይ' ምርካብ ንነብስኻ ይገልጸካ፣ ሕመረት ህላወኻ ይገልጽ።
+
+ዓንኬልኩም ብጥንቃቐ ምረጹ፣ ምኽንያቱ ንሕና መቓልሕ ናይተን መዓልታዊ ህይወትና ዝካፈላ ሓሙሽተ ነፍሳት ኢና 🌱። ናብ ጫፋት 🚀 ምድያብካ ብዘብርሁ ከዋኽብቲ ንርእስኻ ከበባ።
+
+
+### 4. ጀምርን! (Launch!)
+
+ጽንዓት ነቲ ኣድካሚ ዓቐብ ናብ ዘሐጉስ ምውራድ ይቕይሮ። ኩሉ ነገር ቅድሚ ምቕሉል ምዃኑ ብትሪ እዩ ዝጅምር፤ ነቲ ናብ ዓወት ዝወስድ ጕዕዞ ከተስተማቕሮ፡ መንኰርኰር ጻዕርኻ ናብ ላዕሊ ምድፋእ ቀጽሎ።
+
+ንህይወትካ ሓላፍነት ውሰድ፣ ምኽንያቱ ዝገብረልካ ሰብ ስለዘየለ። 🌟 ጽቡቕ ሂወትካ ኣብ ኢድካ እዩ ዘሎ፤ ምጽባይ መድሓኒ ንኸንቱ እዩ። 🚫
+
+
+---
+
+## ወፍሪ ንብረት (Real Estate Investment)
+
+ወፍሪ ንብረት ምስ ግዜ ሃብቲ ንምህናጽ ብሉጽ መገዲ ክኸውን ይኽእል እዩ። ኣብ ንብረት ወፍሪ ንምግባር ብዙሕ መንገድታት ኣሎ፡ ነፍሲ ወከፎም ድማ ናይ ገዛእ ርእሶም ረብሓን ጉድኣትን ኣለዎም።
+
+ገለ ካብቶም ኣብ ንብረት ወፍሪ ንምግባር ዝበዝሑ ተፈተውቲ መገድታት፡ ንብረት ክራይ ምግዛእ፡ ኣብ ንብረት ወፍሪ ትራስት (REITs) ወፍሪ ምግባር፡ ገዛውቲ ምግልባጥን ኣብ ጥረ መሬት ወፍሪ ምግባርን ይርከብዎም።
+
+**ረብሓታት፡**
+- ሪል እስቴት ምስ ካልኦት ዓበይቲ ደርብታት ንብረት ትሑት ምትእስሳር ኣለዎ
+- ኣብ ፖርትፎሊዮ ዝተፈላለዩ ንብረታት ንብረት ምውሳኽ ንናይ ፖርትፎሊዮ ዘይርጉእነት ከጉድልን ኣብ ሓደ ኣሃዱ ሪስ ዝለዓለ ረብሓ ክህብን ይኽእል
+
+*Real estate investments can be a great way to build wealth over time. There are many ways to invest in real estate, and each has its own pros and cons. Some of the most popular ways to invest in real estate include buying rental properties, investing in real estate investment trusts (REITs), flipping houses, and investing in raw land.*
+
+
+---
+
+## ምሕደራ ንግዲ (Business Management)
+
+**ምምሕዳር እንታይ ማለት እዩ? (What does it mean to govern?)**
+
+ከመይ ጌርካ ቢዝነስካ ትዓቢ። ወነንቲ ትካላት ንግዲ፡ ቁጠባኦም ከመይ ይዓቢ። ብኸመይ ዓማዊል ክትረክብ ትኽእል? ኣብ ንግድን ቁጠባን ስሉጥ ምሕደራ።
+
+*How to grow your business. Business Owners: How to Grow Their Economy. How can you find customers? Efficient management in business and economics.*
+
+
+### ናይ ሓቂ ሓጐስ ኣብ ንግዲ (True Happiness in Business)
+
+ናይ ሓቂ ሓጐስ ኣብ ስጋዊ ንብረት ኣይኰነን። 🛍️🏎️⌛️ ነባሪ ሓጐስ ካብቲ እንውንኖ ነገራት ኣዝዩ ዝሓልፍ እዩ። ካብቲ እንረኽቦ ኣዝዩ ዝሓልፍ እዩ። ኣብቲ እንህቦ እዩ ዘሎ።
+
+ደረጃ ሓጎስና ምስቲ ኣብ ከባቢና ዘሎ ዓለም እንገብሮ ኣበርክቶ ብቐጥታ ዝመጣጠን እዩ። ህይወትና ናብ ካልኦት ብምቕናዕ፡ ካብ ገዛእ ርእስና ዝዓቢ ዕላማ ብምግልጋል፡ ብሓቂ ናይ ነዊሕ ግዜ ሓጎስን ሓጎስን ንረክብ።
+
+ንንግድኻ ከም መገዲ ህይወት ሰባት ንምቕያርን ንምምሕያሽን ተጠቐመሉ። 💼💡💰 ገዚፍ እቶት ናይ ምእካብን ፋይናንሳዊ ዓወት ናይ ምምዝጋብን ዕድል ጥራይ ዘይኮነስ ብዕምቆት ዕግበትን ሓጎስን ክስምዓካ እዩ።
+
+
+---
+
+## ንኹሎም እቶም ሕልምታቶም ዝከታተሉ (For All Who Chase Their Dreams)
+
+ኩሉ ሰብ ኣይርድኣካን እዩ ግን ጸገም የብሉን። እቲ እንኮ ክኣምኖ ዝግበኦ ሰብ ንስኻ ኢኻ! ብውጽኢትካ ንኻልኦት ከተእምን ኢኻ።
+
+ኣብዚ ደው ክትብል ክሳብ ክንድዚ ኣይመጻእካን። ሓዝ፡ ተስፋ ኣይትቑረጽ።
+
+ስለ ዝኸበደ እዩ ዋጋ ዘለዎ። ብዘይ ሓደጋ ክንስዕር ብዘይ ክብሪ ንዓወት።
+
+ኣብ ናይ ገዛእ ርእስኻ መንገዲ ኢኻ ዘለኻ። ምዕባለኻ ምስ ናይ ካልኦት ኣይተነጻጽሮ። ኣብ ህይወት ኣይደንጉኻን፣ ዝተፈለየ ጉዕዞ ኣለካ።
+
+*🌟 You are on your own path. Don't compare your progress with others. You are not late in life, you have a different journey.*
+
+
  
 
 
