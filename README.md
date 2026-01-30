@@ -52,7 +52,7 @@ we need to developing our society & country ,  we soulde have beening developing
 *ባህርያት ናይ ትግርኛ ቋንቋ*
 
 
-1. *ስርዓተ ጽሑፍ*: ካብ ፀጋም ናብ ጸጋም (right to left ዘይኮነስ left to right)።
+1. *ስርዓተ ጽሑፍ*: ካብ ፀጋም ናብ ጸጋም (left to right, not right to left)።
 
 
 2. *ቁጽሪታት*: ፊደላዊ ቁጽሪታት (፩ = 1, ፪ = 2, ፫ = 3, ፬ = 4, ፭ = 5, ፮ = 6, ፯ = 7, ፰ = 8, ፱ = 9, ፲ = 10) ወይ ዓረባዊ ቁጽሪታት።
