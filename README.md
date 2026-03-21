@@ -202,7 +202,7 @@ we need to developing our society & country ,  we soulde have beening developing
 
 2. *ISO መለክዒታት*:
    - ISO 639 ቋንቋ ኮድ
-   - Unicode ምኽባብ
+   - Unicode ምኽባር
    - ኣህጉራዊ መለክዒታት ምኽባር
    - ዓለማዊ ምውህሃድ
 
