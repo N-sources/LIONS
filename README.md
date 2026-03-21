@@ -308,10 +308,10 @@ we need to developing our society & country ,  we soulde have beening developing
 *መእተዊ*
 
 
-ኣህጉር ኣፍሪቃ ውሁድ ሕጋዊ ስርዓትን ኣህጉራዊ ትካላትን ዘለዎ እዩ። ዩኒቨርስቲ ኣፍሪቃ (African Union) ዋና ኣህጉራዊ ትካል ኮይኑ፡ ንሰላም፡ ምዕባለን ምትሕግጋዝን ኣብ ኣህጉር ይሰርሕ።
+ኣህጉር ኣፍሪቃ ውሁድ ሕጋዊ ስርዓትን ኣህጉራዊ ትካላትን ዘለዎ እዩ። ሕብረት ኣፍሪቃ (African Union) ዋና ኣህጉራዊ ትካል ኮይኑ፡ ንሰላም፡ ምዕባለን ምትሕግጋዝን ኣብ ኣህጉር ይሰርሕ።
 
 
-*ዩኒቨርስቲ ኣፍሪቃ (African Union - AU)*
+*ሕብረት ኣፍሪቃ (African Union - AU)*
 
 
 1. *መስረታ*: ኣብ 2002 ተመስሪቱ፡ ኣብ ቦታ ውድብ ሓድነት ኣፍሪቃ (OAU)።
@@ -374,7 +374,7 @@ we need to developing our society & country ,  we soulde have beening developing
 
 
 1. *ECOWAS* (ምዕራብ ኣፍሪቃ)
-2. *SADC* (ደቡብ ኣፕሪካ)
+2. *SADC* (ደቡብ ኣፍሪቃ)
 3. *EAC* (ምብራቕ ኣፍሪቃ)
 4. *COMESA* (ህዝበ-ምብራቕ-ደቡባዊ ኣፍሪቃ)
 5. *ECCAS* (ማእከላይ ኣፍሪቃ)
@@ -450,7 +450,7 @@ we need to developing our society & country ,  we soulde have beening developing
 *መደምደምታ*
 
 
-ኣህጉር ኣፍሪቃ ብዝተወደበ ሕጋዊ ስርዓትን ትካላትን ብምስራሕ፡ ንሰላም፡ ጽድቅን ምዕባለን ይቃለስ። ዩኒቨርስቲ ኣፍሪቃን ካልኦት ኣህጉራዊ ትካላትን ኣብ ምውሓስ መሰላት ዜጋታት ኣፍሪቃን ምዕባይ ቁጠባን ወሳኒ ግደ ኣለወን።
+ኣህጉር ኣፍሪቃ ብዝተወደበ ሕጋዊ ስርዓትን ትካላትን ብምስራሕ፡ ንሰላም፡ ጽድቅን ምዕባለን ይቃለስ። ሕብረት ኣፍሪቃን ካልኦት ኣህጉራዊ ትካላትን ኣብ ምውሓስ መሰላት ዜጋታት ኣፍሪቃን ምዕባይ ቁጠባን ወሳኒ ግደ ኣለወን።
 
 
 
