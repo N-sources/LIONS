@@ -478,7 +478,7 @@ we need to developing our society & country ,  we soulde have beening developing
 - ሕጊ ምምሕዳር ከባቢ፡ ምሕደራ ኣውራጃታት፡ ኮሙናት ወዘተ።
 
 3. መንግስቲ
-ቀዋሚ ባእታታት፤
+ቀዋሚ ባእታታት:
 - ግዝኣት
 - በዝሒ ህዝቢ
 - ልኡላውነት (ልዑል ስልጣን ናይ ምውሳን)
@@ -499,7 +499,7 @@ we need to developing our society & country ,  we soulde have beening developing
 
 7. ህዝባዊ ኣገልግሎት
 ብመንግስቲ ዝቐርብ ሓፈሻዊ ረብሓ ዘለዎ ንጥፈት እዩ።
-መትከላት፤
+መትከላት:
 - ቀጻልነት
 - ማዕርነት
 - ምትዕጽጻፍ
