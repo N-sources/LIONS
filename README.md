@@ -478,7 +478,7 @@ we need to developing our society & country ,  we soulde have beening developing
 - ሕጊ ምምሕዳር ከባቢ፡ ምሕደራ ኣውራጃታት፡ ኮሙናት ወዘተ።
 
 3. መንግስቲ
-ቅዋማት ባእታታት፤
+ቀዋሚ ባእታታት፤
 - ግዝኣት
 - በዝሒ ህዝቢ
 - ልኡላውነት (ልዑል ስልጣን ናይ ምውሳን)
@@ -506,5 +506,5 @@ we need to developing our society & country ,  we soulde have beening developing
 
 8. ምምሕዳራዊ ተግባራት
 ብምምሕዳር ዝውሰድ ውሳነታት ክኸውን ይኽእል፤
-- ምቁጽጻር (ሓፈሻዊ)
-- ውልቀ ሰብ
+- ምቁጽጻር (ሓፈሻዊ)፡ ንህዝቢ ብሓፈሻ ዝምልከት ሕጋዊ ውሳነ።
+- ውልቀ ሰብ፡ ንሓደ ወይ ዝተፈለየ ውልቀ ሰብ ዝምልከት ምምሕዳራዊ ውሳነ።
