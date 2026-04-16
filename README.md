@@ -170,10 +170,43 @@ we need to developing our society & country ,  we soulde have beening developing
 4. *ፍርዲ*፡- ኣብ ምዝዛም ፍርዲ ብሲቪላዊ ቤት ፍርዲ ዝወሃብ ውሳነ።  
  
 5. *ይግባይ*፡ ንፍርዳዊ ውሳነ ንምፍታሕ ዝሕግዝ ሕጋዊ ኣገባብ (ይግባይ፡ ተቓውሞ፡ ምቕባል)። 
- 
- 
- 
- 
+  
+## ገበናዊ መስርሕ እና ሲቪላዊ መስርሕ - ዋና ፍልልይ (ቴክኒካዊ ሕጋዊ ቋንቋ)
+
+1. **ሕጋዊ ባህርን ዕላማን**
+   - **ገበናዊ (Criminal):** ህዝባዊ ሕጊ (Public law) ኮይኑ ናይ መንግስቲ *jus puniendi* (መሰል ምቕጻዕ) ይተኣሳሰር። ዕላማኡ ምቕጻዕ፣ ምክልኻል ገበን፣ deterrence እና rule of law ምውሓስ እዩ።
+   - **ሲቪላዊ (Civil):** ብሕቲ ሕጊ (Private law) እዩ፣ ኣብ መንጎ ውልቀሰባት/ድርጅታት ዝፍጠር ግጭት ይተዳለው። ዕላማኡ መብት ምርካብ፣ ካሕሳ፣ specific performance ወይ injunction እዩ።
+
+2. **ወገናት ክሲ**
+   - **ገበናዊ:** **State v. Defendant**፣ ዓቃቢ ሕጊ (public prosecutor) ዋና ክሳይ እዩ።
+   - **ሲቪላዊ:** **Plaintiff/Claimant v. Defendant/Respondent**፣ ክሲ ምቕራብን ምስራዝን ብቐንዱ ናይ ወገናት ውሳነ (party autonomy) እዩ።
+
+3. **መትከላት መስርሕ**
+   - **ገበናዊ:** Presumption of innocence፣ legality (nullum crimen / nulla poena sine lege)፣ due process/fair trial ይኣትው።
+   - **ሲቪላዊ:** party disposition principle እና adversarial procedure ብዝብዝሕ ይግበር፣ ዳኛ ብኣብዛኛው “referee” ተራ ይወስድ።
+
+4. **ጾር መርትዖን ደረጃ መረጋገጺን**
+   - **ገበናዊ:** ጾር መርትዖ ኣብ prosecution እዩ፣ ደረጃ መረጋገጺ “beyond reasonable doubt” እዩ።
+   - **ሲቪላዊ:** ኣብ ብዙሕ ጉዳያት “actori incumbit probatio” ይተግበር፣ ደረጃ መረጋገጺ “balance/preponderance of probabilities” እዩ።
+
+5. **ውጽኢት / መፍትሒ**
+   - **ገበናዊ:** ማእሰርቲ፣ ቅጻዕቲ፣ probation፣ ማሕበራዊ ኣገልግሎት ወዘተ።
+   - **ሲቪላዊ:** damages/compensation፣ injunction/order፣ execution/enforcement ወዘተ።
+
+6. **ተመሳሳሊ ፍጻመ ሓቂ ኣብ ክልቲኡ መስርሕ**
+   - ሓደ ፍጻመ (ንኣብነት ስርቂ ወይ ጉድኣት ሰብነት) ብሓደ ግዜ ገበናዊ ክሲን ሲቪላዊ ክሲን ክወሃብ ይኽእል።
+
+7. **Res judicata / preclusion**
+   - ጉዳይ እንተተወሰነ ብተመሳሳሊ ወገናትን መሰረትን ዳግም ምኽሳስ ብመሰረት ኣይፍቀድን።
+   - ተጽዕኖ ገበናዊ ፍርዲ ኣብ ሲቪላዊ ጉዳይ ከከም ሃገራዊ ሕጊ ይፈላለይ።
+
+**ሓጺር መደምደሚ:**  
+- **ገበናዊ:** ህዝባዊ ቅጥዒ እና ምቕጻዕ፣ ዝለዓለ ደረጃ መረጋገጺ።  
+- **ሲቪላዊ:** መብት ውልቀሰብ ምርካብ/ካሕሳ፣ ዝወሓደ ደረጃ መረጋገጺ።
+  
+  
+  
+  
  
             *ሓፈሻዊ ሕገ መንግስታዊ ሕጊ* 
 
@@ -462,4 +495,3 @@ we need to developing our society & country ,  we soulde have beening developing
 9. ምክልኻል ገበን፡- ገበናት ንኸይፍጸም ዝሕግዙ ማሕበራዊ፡ ትምህርታዊ ወይ ጸጥታዊ ስጉምትታት።
 
 10. ማሕበራዊ ዳግመ-ምትእስሳር፡- ንሓደ ዝተፈርደ ሰብ ናብ ሕብረተሰብ ንኽጽንበር ምድጋፍ መስርሕ።
-
