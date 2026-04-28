@@ -220,7 +220,9 @@ we need to developing our society & country ,  we soulde have beening developing
 
  
 
-- ግዴታታት፡- ሃገራት ነዞም መሰላት ከኽብራ፡ ክሕልውዎምን ከረጋግጹን ኣለወን። 
+- ግዴታታት፡- ሃገራት ነዞም መሰላት ከኽብራ፡ ክሕልውዎምን ከረጋግጹን ኣለወን።
+
+ኩላትና ናይ ክብሪን ተቐበልቲ ክንከውን ከም እንኽእልን ትፈልጡ ዶ? 
 
  
 
