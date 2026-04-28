@@ -463,3 +463,14 @@ we need to developing our society & country ,  we soulde have beening developing
 
 10. ማሕበራዊ ዳግመ-ምትእስሳር፡- ንሓደ ዝተፈርደ ሰብ ናብ ሕብረተሰብ ንኽጽንበር ምድጋፍ መስርሕ።
 
+
+---
+
+**Humanity, Human Rights, and Animal Rights**
+
+Humanity means that we are in this world ruled by man; so long as the Creator of that life gives man the right to live and enjoy his life in peace and love, believing in his will and living as he wants. We must fight for it to be respected and lived.
+
+Therefore, human rights must be respected. Not only human rights — animal rights, too, must be respected.
+
+Society should know and learn that the life of any animal should not be wasted.
+
