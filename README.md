@@ -394,6 +394,8 @@ we need to developing our society & country ,  we soulde have beening developing
 
 10. ኩሉ መርመራ ሓቅን ፍትሕን ምድላይ እዩ። 
 
+La persévérance transforme l'ascension ardue en une descente exaltante. Tout commence difficilement avant de devenir facile&nbsp;; poursuivez vos efforts pour savourer le chemin vers la victoire.
+
  
 
  
