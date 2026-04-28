@@ -463,3 +463,25 @@ we need to developing our society & country ,  we soulde have beening developing
 
 10. ማሕበራዊ ዳግመ-ምትእስሳር፡- ንሓደ ዝተፈርደ ሰብ ናብ ሕብረተሰብ ንኽጽንበር ምድጋፍ መስርሕ።
 
+
+
+
+               Humanity, Human Rights & Animal Rights
+
+
+Humanity means that we are in this world ruled by man, so long as the Creator of that life gives man the right to live and enjoy his life in peace and love, believing in his will and living as he wants. We must fight for it to be respected and lived.
+
+Therefore, human rights should be respected. No, human rights, and animal rights, must be respected.
+
+Society should know and learn that the life of any animal should not be wasted.
+
+- Every human being has the right to live in peace, dignity, and freedom, regardless of origin, religion, or belief.
+
+- Human rights are universal, inalienable, and indivisible. They must be upheld, protected, and fulfilled by all nations and societies.
+
+- Animal rights must equally be recognized and respected. The life of any animal has value and should not be wasted or treated with cruelty.
+
+- Society has a collective responsibility to educate itself and to act against any violation of human or animal rights.
+
+- The respect for life — human and animal — is the foundation of a just and compassionate society.
+
