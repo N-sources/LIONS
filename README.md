@@ -1,3 +1,5 @@
+# ሀሁ — ሕጋዊ ትምህርቲ / Legal Studies
+
 Civil justice
 Civil cases
 Civil procedure
