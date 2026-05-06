@@ -463,3 +463,20 @@ we need to developing our society & country ,  we soulde have beening developing
 
 10. ማሕበራዊ ዳግመ-ምትእስሳር፡- ንሓደ ዝተፈርደ ሰብ ናብ ሕብረተሰብ ንኽጽንበር ምድጋፍ መስርሕ።
 
+
+
+## Self-Control & Emotional Mastery
+
+Self-control is strength.
+Calmness is mastery.
+
+Do not allow yourself to get to a point where the insignificant actions of someone else
+determine the direction of your life. Never allow your emotions to overpower your intelligence.
+
+
+
+## ኮምፑተርን ቴክኖሎጂን
+
+ኮምፑተርን ንሕናን ፣ ኣብ ስራሕናን መዓልታዊ ንጥፈታትናን መሳለጢ ፣ ኣብ ኩሉ መዳያት ሂወት ናይ መመንና ፣
+ምስ ኮምፑተር ክሳብ ዝተኣሳሰረ ዘሎ ኩሉ ክነመሃር ኣለና ፣ ኣፍልጦ ናይ ኮምፑተር ክህልወና ይግበእ።
+
