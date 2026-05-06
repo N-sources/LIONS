@@ -463,3 +463,73 @@ we need to developing our society & country ,  we soulde have beening developing
 
 10. ማሕበራዊ ዳግመ-ምትእስሳር፡- ንሓደ ዝተፈርደ ሰብ ናብ ሕብረተሰብ ንኽጽንበር ምድጋፍ መስርሕ።
 
+
+
+
+ ናይ ኮምፒተር ምቁጽጻር መምርሒ / Ways to Control Your Computer
+
+
+ኮምፒተርና ንምቁጽጻር ዝሕግዙ መንገድታት
+
+- ኣብ ዝኾነ ኮምፒተር ኮድና ተጠቐሙ፣ ካብ Scammers & Potential Fraudsters ድማ ብኢመይል ተጠቐሙልና።
+- ናይ ዝኾነ ሰብ ኢመይል ኣብ ዝመጸናሉ እዋን፡ ነቶም ዘይጥዑማት ብቕልጡፍ ኣለሊና ኣወግድዎም።
+- መሰረታዊ ሳይበር ክትመሃር ምፍታን።
+- ምስ ዘይትፈልጦም ሰባት ሰላምታ ምልውዋጥ ተጠንቀቕ።
+- ኢመይል ምስ ኩሉ ኣይትጠቐም — ምኽንያቱ ሰባት ሃክ ክገብሩን ኣብ ክንድኻ ክሰርሑን ገበን ክፍጽሙን ይኽእሉ እዮም።
+- ብፍላይ ኣብ ንግድን ንጥፈታትን ትነጥፍ እንተኾንካ፡ ነቲ ዝሰደልካ መልእኽቲ ብጥንቃቐ ኣጽንዕ።
+- ሰብ ሞያ ሳይበር ምጥቃም።
+- ኩሉ ምስ ሳይበር ዝተኣሳሰር ኣገዳስን ኣድማዕን ኮይኑ ክትረኽቦ ኢኻ።
+
+
+Ways to control your computer
+
+- Use our codes on any computer, and email us about Scammers & Potential Fraudsters.
+- Whenever we receive anyone's email, quickly identify and remove the unpleasant ones.
+- Try to learn basic cyber security.
+- Be careful about exchanging greetings with people you do not know.
+- Don't use email for everything — because they can hack, work on your behalf, and commit crimes.
+- Especially if you are involved in business and activities, study the messages sent to you carefully.
+- Use cyber security professionals.
+- You will find everything cyber-connected important and effective.
+
+
+
+
+ { 1 } ምቁጽጻር ሓይሊ እዩ። ህድኣት ምልከት ብልሒ እዩ።
+
+ Control is strength. Calmness is mastery intelligence.
+
+
+® ህድኣትን ርጉእነትን ምልክት ብልሕን ሓይሊ ነብሰ ምግታእ እዩ፡ ፍርሕን ርእሰ ምትሓትን ኣይኮነን።
+
+ምኽንያቱ፡ በሊሕን መስተውዓልን ርእሰ ምትእምማን ዘለዎ ሰብ ኣብ ዝኾነ ጠብሎቅ ኣይብልን እዩ።
+
+በሊሕ ሰብ ኣስተውዒሉን ረጊኡን መገዱን ጉዕዙኡን ይጅምር።
+
+ብልሒ ወይ ፍልጠትን ኣብ ዘይሩጉእ ኩነታት ሓይልኻ እየን፡ ካብ ሽግርን ጸበባን ብጥበብን ብምስትውዓልን ከም እትወጽእ ይገብራኻ።
+
+
+
+
+® ጸገም እንታይ እዩ?
+
+ጸገም ናይ ኣጋጣሚ ዝፍጠር ኣይኮነን፡ ኣብ ጉዕዞ ሂወትን ኣብ ስራሕ ዓለምን ምስ ተዋፈርካ፡ ናይ ሂወት ርእሱ ዝኸኣለ ተጻብዕታት ብሕብረተ ሰብ እዩ ዝፍጠር።
+
+ሓደ ካብ እቶም ጸገማትን ብድሆታትን ዝፈጥሩ ምኽንያታት፡ ካብ ቅንእን ሕሳደን ጸላእትኻ እዩ።
+
+ጸላእቲ ብኸመይ ዝፍጠር ቅንኢ? — ቅንኢ ንጸላእቲ ዝፈጥር እዩ። ሓደ ሰብ ብንእሽቶ ነገር ብሉጽነት እንተ ሃልዩካ፡ ወይ እቲ ዝደልይዎ ነገር ኣብኻ ይርእይዎ እሞ፡ ወላ ምጥራይን ምምሳልን ምሰኣበዮም፡ ኣብ ልዕሌኻ ብሕሱም ቅንኢ ሓሶትን ጸለምን ካብ ሕብረተሰብ ንምግላልን፡ ዝተፈላለዩ ዕንቅፋትን ይፈጥሩልካ ናብቲ ናሃታቶም ደርውጃ ከውርዱኻ።
+
+ነቲ ዘልካ ጽባቀ ክረኽብዎ ስለ ዘይኽእሉ ከነኣእስዎ ይፍትኑ። ምኽንያቱ ንስኻ እንተ ሃሊኻ ኣብ ቅድሜኻ ብቕዓቶም ድሩትን ኖርማል ኮይኑ ይርኣዮም፡ ስለዚ ንዓኻ ክውጉዱኻ እዩ ዘለዎም — ሓሶቶምን ምትላሎምን ብቕዓቶምን ከምዘይቕጽል ከረጋግጹ።
+
+ምኽንያቱ ንስኻ እንተ ሃሊኻ ሽቕሩሩን ፈርሃን ርእሰ ምትእምማን ስለ ዝጎድሎም፡ ብድኽመቶም ንሓድሕዶም ክሰርሑን እናሓሰዉ ክነብሩን ይፋቱ ኣብ ክንዲ ካባኻ ዝመሃሩን ዝምኻኸሩን።
+
+በዚ ምኽንያት ሂወት ብጸገማትን ዝተሸናኸረት ትኸውን፡ ኩሉ ኣፍ ዘውጻእ ቃላት ናባኻ ክውርወሩ ከምዘለዉ ጌሮም ይምልምሉዎም።
+
+ነቲ ናትካ ጽባቀን ብሉጽነትን ከም ናሃታቶም ጌሮም ንሕብረተሰብ ይምህርዎም።
+
+እቲ ናሃታቶም ሕምቀትን ድኽመትን ነዉርን ክፈኣትን ከም ናትካ ጌሮም ይቐርብዎ።
+
+ኣብ ኩሉ ቦታ ከም እትስእንን ሰማዒ ከምዘይትረክብን ጌሮም፡ ብገንዘብን ዝተፈላለዩ ንዋያትን ዘይትፈልጦም ስዉራት ጸላእቲ ይሰዱልካን፡ በኣኣቶም ኢ ጌሮም ከዳኽሙኻ ይፍትኑ።
+
+ጸላእቲ ብዝያዳ ምኽንያት ካብ ቅንኢ እዩ ዝፍጠሩ።
+
