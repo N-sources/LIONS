@@ -463,3 +463,9 @@ we need to developing our society & country ,  we soulde have beening developing
 
 10. ማሕበራዊ ዳግመ-ምትእስሳር፡- ንሓደ ዝተፈርደ ሰብ ናብ ሕብረተሰብ ንኽጽንበር ምድጋፍ መስርሕ።
 
+ኩሉ መንፈሳዊ መጥቃዕቲ ከመይ ጌሩ ንድሕሪት ከም ዝመለሰልካ ክገልጹ ስለ ዘይክእሉ ብዛዕባኻ ውዲታዊ ክልሰ - ሓሳብ ከም ዝገበሩ ።
+they can't explain how every spiritual attack  backfired on you so they made a conspiracy theory  about you .
+
+
+ስለዚ ኣብ ሂወትና  ዓቢ ጥንቃቀን ምስትውዓልንይግበኣና  ኣብ መዓልታዊ ምንቅስቃስና ፣
+
