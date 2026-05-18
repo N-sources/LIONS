@@ -11,6 +11,7 @@ justice!    Fair judgment, justice and integrity ,
 how can they be reflected in civil government and Administration governance?
 we need to developing our society & country ,  we soulde have beening developing our socity & country to compear in the worlde  with the ......... 
 / must 
+ኣብ ዓለም እቶም ዕዉታት ሕብረተ ሰብን ምዕቡለት ሃገራትን፣ ነዚ ኣምር ጥርኑፍነት ንዝብል ፍልስፍና ኣበርቲዖም ስለ ዝሰርሑሉ፣ ኣብዚ ሕጂ ዘለውዎ ደረጀ በጺሖም። ናይ እዚ ህዝብና ነዛ ፍልስፍና ክጥቀመላ ኣለዎ።
 
 
 
@@ -462,4 +463,3 @@ we need to developing our society & country ,  we soulde have beening developing
 9. ምክልኻል ገበን፡- ገበናት ንኸይፍጸም ዝሕግዙ ማሕበራዊ፡ ትምህርታዊ ወይ ጸጥታዊ ስጉምትታት።
 
 10. ማሕበራዊ ዳግመ-ምትእስሳር፡- ንሓደ ዝተፈርደ ሰብ ናብ ሕብረተሰብ ንኽጽንበር ምድጋፍ መስርሕ።
-
