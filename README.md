@@ -9,7 +9,7 @@ you have the strength to get back up after every fall.
 It is this resilience that forges true courage and propels you to new heights.
 justice!    Fair judgment, justice and integrity ,
 how can they be reflected in civil government and Administration governance?
-we need to developing our society & country ,  we soulde have beening developing our socity & country to compear in the worlde  with the ......... 
+we need to develop our society & country, and we should have been developing our society & country to compare in the world with the .........
 / must 
 ኣብ ዓለም እቶም ዕዉታት ሕብረተ ሰብን ምዕቡለት ሃገራትን፣ ነዚ ኣምር ጥርኑፍነት ንዝብል ፍልስፍና ኣበርቲዖም ስለ ዝሰርሑሉ፣ ኣብዚ ሕጂ ዘለውዎ ደረጀ በጺሖም። ናይ እዚ ህዝብና ነዛ ፍልስፍና ክጥቀመላ ኣለዎ።
 
